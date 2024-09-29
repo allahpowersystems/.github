@@ -1,5 +1,6 @@
 ## салам
-
+возможно тут будут сурсы разных проектов <a href="https://t.me/dnrsl_vf">@dnrsl_vf</a><br>
+если нет то чекайте <a href="https://github.com/strokegmd">акк строка хд</a>
 <!--
 
 **Here are some ideas to get you started:**
